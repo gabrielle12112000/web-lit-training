@@ -3,21 +3,21 @@
 ## Family and friends
  * Save for kids' college education
  * ~~Organize a family portrait~~
- * Throw a surprise party for a loved one
+ * Save to buy plane tickets to go home for the holidays
 
 ## Travel and Adventure
- * Visit Antarctica
+ * Buy an RV 
  * Go skydiving
- * Dive the Great Barrier Reef
+ * Visit Ireland
  
 ## Career
- * ~~Learn coding skills~~
- * Get a job in technology
+ * Start my Bachelors
+ * Get a job in Nursing
 
 ## Service and volunteering
  * Join a nonprofit board
- * Volunteer at a children's hospital
+ * Volunteer at more military functions
  
 ## Creativity
-* Write a song
-* Take an art class
+* Commit to a project from its inception to completion
+* Find my passion to create new things
